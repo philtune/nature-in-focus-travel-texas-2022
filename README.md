@@ -1,5 +1,3 @@
-# nature-in-focus-travel-texas-2022
-
 # Nature In Focus with Ian Shive - "Travel Texas" Branding - November 2022
 
 Developed February 2022 by Phil Tune for Warner Bros. Discovery - Creative Services Team
